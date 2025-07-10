@@ -29,5 +29,5 @@
 结语
 “黑料不打烊”现象不仅反映了娱乐圈的复杂竞争和信息传播速度，也体现了现代社会信息多元化的挑战。我们应在满足信息需求的同时，坚守理性与底线，共同营造清朗的网络环境。
 
-<span style="display:none;">[Canonical link](https://github.com/GLX0710/GLX0710-07)</span>
+<span style="display:none;">[Canonical link](https://github.com/GLX0710/GLX0710-14)</span>
 
